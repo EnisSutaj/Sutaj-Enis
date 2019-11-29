@@ -1,2 +1,0 @@
-# Sutaj-Enis
-full
